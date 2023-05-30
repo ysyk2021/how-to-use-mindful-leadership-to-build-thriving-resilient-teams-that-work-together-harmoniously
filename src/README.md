@@ -12,4 +12,4 @@ Finally, the third section of the book provides practical strategies for cultiva
 
 Overall, this book aims to provide readers with the knowledge and tools necessary to cultivate mindful leadership skills and build thriving, resilient teams that work together harmoniously. By embracing mindfulness, leaders can create a positive workplace culture that benefits everyone involved and achieves greater success in their careers.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
