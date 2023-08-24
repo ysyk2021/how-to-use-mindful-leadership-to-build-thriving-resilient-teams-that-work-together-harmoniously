@@ -1,5 +1,3 @@
-Strategies for Using Mindful Leadership to Promote Creativity and Innovation
-====================================================================================================================================================
 
 Creativity and innovation are essential for teams to remain competitive and adapt to changing circumstances. Mindful leadership can enhance creativity and innovation by creating a work environment that promotes experimentation, risk-taking, and collaboration. In this chapter, we will discuss strategies for using mindful leadership to promote creativity and innovation.
 

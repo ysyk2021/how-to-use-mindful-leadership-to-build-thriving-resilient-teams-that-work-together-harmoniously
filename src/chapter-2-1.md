@@ -1,5 +1,3 @@
-Definition of mindful leadership
-=============================================================================
 
 Mindful leadership is a leadership approach that involves being present in the moment, listening deeply, and responding with intention and wisdom. It combines the principles of mindfulness, which involves non-judgmental awareness of the present moment, with the principles of effective leadership, such as empathy, compassion, and self-awareness.
 

@@ -1,5 +1,3 @@
-Encouraging Experimentation and Risk-Taking
-===================================================================================================================
 
 Encouraging creativity and innovation is crucial for building thriving, resilient teams that work together harmoniously. In this chapter, we will discuss how mindful leadership can enhance creativity and innovation by encouraging experimentation and risk-taking.
 

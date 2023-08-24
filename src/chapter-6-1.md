@@ -1,5 +1,3 @@
-The Importance of Promoting Resilience in Teams
-========================================================================================================
 
 Resilience is the ability to bounce back from adversity and cope with stress and challenges. In team settings, promoting resilience is crucial for maintaining high performance and well-being. In this chapter, we will discuss the importance of promoting resilience in teams and how mindful leadership can help.
 

@@ -1,5 +1,3 @@
-Encouraging Teamwork and Collaboration
-==================================================================================
 
 Building a mindful team culture is crucial for creating thriving, resilient teams that work together harmoniously. In this chapter, we will discuss strategies for building a mindful team culture by encouraging teamwork and collaboration.
 

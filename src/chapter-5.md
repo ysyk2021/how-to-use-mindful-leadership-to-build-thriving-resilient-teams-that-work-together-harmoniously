@@ -1,5 +1,3 @@
-Chapter 5: Managing Conflict with Mindful Leadership
-====================================================
 
 Conflict is inevitable in any team or organization, but how it is managed can have a significant impact on team performance and harmony. In this chapter, we will explore the impact of conflict on teams and discuss strategies for managing conflict with mindful leadership.
 

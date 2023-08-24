@@ -1,5 +1,3 @@
-The Impact of Conflict on Team Performance and Harmony
-============================================================================================================
 
 Conflict is inevitable in team settings, but it can have a significant impact on team performance and harmony. In this chapter, we will explore the impact of conflict on team performance and harmony and discuss how mindful leadership can help manage conflict.
 

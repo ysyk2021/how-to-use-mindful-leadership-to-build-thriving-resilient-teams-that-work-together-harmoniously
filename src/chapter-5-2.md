@@ -1,5 +1,3 @@
-Strategies for Managing Conflict with Mindful Leadership
-==============================================================================================================
 
 Conflict is inevitable in any team setting, but mindful leadership can help manage conflict by encouraging open communication and understanding. In this chapter, we will discuss strategies for managing conflict with mindful leadership.
 

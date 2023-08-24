@@ -1,5 +1,3 @@
-Chapter 4: Improving Communication with Mindful Leadership
-==========================================================
 
 Effective communication is essential for building thriving, resilient teams that work together harmoniously. In this chapter, we will explore the importance of effective communication in team settings and discuss strategies for improving team communication with mindful leadership.
 

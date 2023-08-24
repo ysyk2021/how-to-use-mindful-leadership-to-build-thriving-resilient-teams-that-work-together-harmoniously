@@ -1,5 +1,3 @@
-The Importance of Effective Communication in Team Settings
-======================================================================================================================
 
 Effective communication is essential for building thriving, resilient teams that work together harmoniously. In this chapter, we will explore the importance of effective communication in team settings and discuss how mindful leadership can improve communication.
 

@@ -1,5 +1,3 @@
-Strategies for Improving Team Communication with Mindful Leadership
-===============================================================================================================================
 
 Improving team communication is essential for building thriving, resilient teams that work together harmoniously. In this chapter, we will discuss strategies for improving team communication with mindful leadership.
 

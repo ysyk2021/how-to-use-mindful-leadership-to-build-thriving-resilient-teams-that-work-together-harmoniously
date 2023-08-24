@@ -1,5 +1,3 @@
-Importance of mindful leadership in team building
-==========================================================================
 
 Effective team building is essential for achieving success in today's fast-paced and constantly changing work environment. Mindful leadership is a powerful approach to team building that promotes resilience, creativity, and collaboration within teams.
 

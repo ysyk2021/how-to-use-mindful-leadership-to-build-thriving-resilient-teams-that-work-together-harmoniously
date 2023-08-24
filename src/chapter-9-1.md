@@ -1,5 +1,3 @@
-The Benefits of Applying Mindful Leadership Skills to Organizational Leadership
-===========================================================================================================================================================
 
 Organizational leadership requires a unique set of skills to navigate complex and constantly changing business environments. In this chapter, we will explore the benefits of applying mindful leadership skills to organizational leadership.
 

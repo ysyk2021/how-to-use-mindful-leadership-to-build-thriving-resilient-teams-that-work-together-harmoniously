@@ -1,5 +1,3 @@
-Leading with Authenticity and Empathy
-=================================================================================================================
 
 Organizational leadership requires leaders to navigate complex systems, processes, and people in a way that achieves business objectives while promoting team well-being and engagement. In this chapter, we will discuss how mindful leadership can help leaders lead with authenticity and empathy.
 

@@ -1,5 +1,3 @@
-Chapter 6: Promoting Resilience with Mindful Leadership
-=======================================================
 
 Resilience is a crucial component of building thriving, resilient teams that work together harmoniously. In this chapter, we will explore the importance of promoting resilience in teams and discuss strategies for promoting resilience with mindful leadership.
 

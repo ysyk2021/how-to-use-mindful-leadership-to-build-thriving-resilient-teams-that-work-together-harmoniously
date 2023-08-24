@@ -1,5 +1,3 @@
-Encouraging self-care and stress management
-====================================================================================================
 
 Mindful leadership can promote resilience within teams by encouraging self-care and stress management practices. In this chapter, we will discuss how mindful leadership can be used to promote resilience, and strategies for encouraging self-care and stress management.
 

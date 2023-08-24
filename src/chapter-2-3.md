@@ -1,5 +1,3 @@
-Strategies for developing mindful leadership skills
-================================================================================================
 
 Mindful leadership involves cultivating self-awareness, empathy, and compassion to lead with intention and wisdom. Developing mindful leadership skills takes practice and effort, but the benefits can be significant for team success. In this chapter, we will discuss strategies for developing mindful leadership skills.
 

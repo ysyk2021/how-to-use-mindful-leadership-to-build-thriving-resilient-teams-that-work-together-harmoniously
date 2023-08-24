@@ -1,5 +1,3 @@
-Chapter 9: Applying Mindful Leadership Skills to Organizational Leadership
-==========================================================================
 
 In this chapter, we will explore how applying mindful leadership skills to organizational leadership can improve the effectiveness and success of leaders and their organizations.
 

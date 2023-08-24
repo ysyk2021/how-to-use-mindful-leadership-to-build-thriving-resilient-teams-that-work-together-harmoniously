@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored the concept of mindful leadership and how it can be used to build thriving, resilient teams that work together harmoniously. We have examined the importance of self-awareness, empathy, and compassion in leadership, as well as the benefits of creating a culture of mindfulness within teams.
 

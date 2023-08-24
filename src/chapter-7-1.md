@@ -1,5 +1,3 @@
-The role of mindfulness in enhancing creativity and innovation
-======================================================================================================================================
 
 Mindful leadership can enhance creativity and innovation within teams by fostering an environment of openness, curiosity, and experimentation. In this chapter, we will discuss the role of mindfulness in enhancing creativity and innovation.
 

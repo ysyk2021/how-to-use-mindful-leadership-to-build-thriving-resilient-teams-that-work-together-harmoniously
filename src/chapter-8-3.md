@@ -1,5 +1,3 @@
-Adjusting Mindful Leadership Programs Based on Feedback
-========================================================================================================
 
 Measuring the success of mindful leadership programs is crucial for ensuring that they are effective in promoting team well-being and performance. In this chapter, we will explore how to measure mindful leadership success and adjust mindful leadership programs based on feedback.
 

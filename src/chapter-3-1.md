@@ -1,5 +1,3 @@
-The importance of building a mindful team culture
-=============================================================================================
 
 Building a mindful team culture is essential for fostering resilience, creativity, and collaboration within teams. It involves creating an environment that promotes self-awareness, empathy, and compassion, and encourages open communication and experimentation. In this chapter, we will discuss the importance of building a mindful team culture.
 

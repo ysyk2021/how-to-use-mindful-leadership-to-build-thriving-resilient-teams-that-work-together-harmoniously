@@ -1,5 +1,3 @@
-Chapter 7: Enhancing Creativity and Innovation with Mindful Leadership
-======================================================================
 
 Creativity and innovation are essential components of building thriving, resilient teams that work together harmoniously. In this chapter, we will explore the role of mindfulness in enhancing creativity and innovation and discuss strategies for using mindful leadership to promote creativity and innovation.
 

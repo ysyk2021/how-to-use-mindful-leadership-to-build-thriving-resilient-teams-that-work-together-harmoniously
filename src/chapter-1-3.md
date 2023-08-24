@@ -1,5 +1,3 @@
-Overview of the book
-=============================================
 
 In today's fast-paced and constantly changing work environment, it is essential for leaders to develop mindful leadership skills that foster resilience, creativity, and collaboration within their teams. Mindful leadership involves being present in the moment, listening deeply, and responding with intention and wisdom.
 

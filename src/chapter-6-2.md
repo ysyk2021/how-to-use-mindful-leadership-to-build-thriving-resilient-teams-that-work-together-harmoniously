@@ -1,5 +1,3 @@
-Strategies for Promoting Resilience with Mindful Leadership
-====================================================================================================================
 
 Promoting resilience is crucial for building thriving, resilient teams that work together harmoniously. In this chapter, we will discuss strategies for promoting resilience with mindful leadership.
 

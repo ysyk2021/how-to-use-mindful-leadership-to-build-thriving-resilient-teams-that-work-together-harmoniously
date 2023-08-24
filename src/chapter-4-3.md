@@ -1,5 +1,3 @@
-Using Active Listening and Feedback Techniques
-==========================================================================================================
 
 Effective communication is essential for building thriving, resilient teams that work together harmoniously. In this chapter, we will discuss how mindful leadership can improve communication by using active listening and feedback techniques.
 

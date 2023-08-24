@@ -1,5 +1,3 @@
-Methods for Measuring Mindful Leadership Success
-=================================================================================================
 
 Measuring the success of mindful leadership is crucial for building thriving, resilient teams that work together harmoniously. In this chapter, we will discuss methods for measuring mindful leadership success.
 

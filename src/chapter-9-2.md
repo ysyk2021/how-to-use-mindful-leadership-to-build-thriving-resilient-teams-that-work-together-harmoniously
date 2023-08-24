@@ -1,5 +1,3 @@
-Strategies for Using Mindful Leadership to Become a Better Organizational Leader
-============================================================================================================================================================
 
 Organizational leadership requires leaders to navigate complex systems, processes, and people in a way that achieves business objectives while promoting team well-being and engagement. In this chapter, we will discuss strategies for using mindful leadership to become a better organizational leader.
 

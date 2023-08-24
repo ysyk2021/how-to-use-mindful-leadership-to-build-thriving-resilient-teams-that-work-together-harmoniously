@@ -1,5 +1,3 @@
-The impact of mindful leadership on team success
-=============================================================================================
 
 Mindful leadership is a leadership approach that focuses on self-awareness, empathy, and compassion. It involves being present in the moment, listening deeply, and responding with intention and wisdom. In this chapter, we will discuss the impact of mindful leadership on team success.
 

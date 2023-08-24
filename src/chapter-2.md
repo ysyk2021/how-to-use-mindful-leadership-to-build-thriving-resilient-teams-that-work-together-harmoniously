@@ -1,5 +1,3 @@
-Chapter 2: Understanding Mindful Leadership
-===========================================
 
 Understanding mindful leadership is essential for building thriving, resilient teams that work together harmoniously. In this chapter, we will define mindful leadership, explore the impact of mindful leadership on team success, and discuss strategies for developing mindful leadership skills.
 
@@ -32,5 +30,4 @@ Conclusion
 ----------
 
 Understanding mindful leadership is essential for building thriving, resilient teams that work together harmoniously. With mindful leadership, leaders can prioritize self-awareness, open communication, empathy, and compassion to create a positive work environment and promote team success. Developing mindful leadership skills requires practice and commitment but can lead to significant benefits for both leaders and their teams.
-
 

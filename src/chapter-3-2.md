@@ -1,5 +1,3 @@
-Strategies for Building a Mindful Team Culture
-==========================================================================================
 
 Building a mindful team culture is essential for creating thriving, resilient teams that work together harmoniously. In this chapter, we will discuss strategies for building a mindful team culture.
 

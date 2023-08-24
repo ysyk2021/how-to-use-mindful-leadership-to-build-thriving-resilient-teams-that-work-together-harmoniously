@@ -1,5 +1,3 @@
-Analyzing Team Performance and Engagement Data
-===============================================================================================
 
 Analyzing team performance and engagement data is an effective way to measure mindful leadership success. In this chapter, we will discuss how analyzing team performance and engagement data can help leaders assess the impact of their mindful leadership practices.
 
