@@ -1,5 +1,4 @@
 
-
 In this book, we have explored the concept of mindful leadership and how it can be used to build thriving, resilient teams that work together harmoniously. We have examined the importance of self-awareness, empathy, and compassion in leadership, as well as the benefits of creating a culture of mindfulness within teams.
 
 By focusing on mindfulness, leaders can improve their ability to communicate effectively, manage stress, and make better decisions. Mindful leaders are also more likely to create a positive work environment that fosters collaboration, innovation, and growth.
