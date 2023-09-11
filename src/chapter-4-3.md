@@ -1,5 +1,4 @@
-Chapter 6: Using Active Listening and Feedback Techniques
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the essential skills of active listening and providing effective feedback within the framework of mindful leadership. These skills are vital for building thriving, resilient teams that work together harmoniously, as they foster open communication, trust, and continuous improvement.
 

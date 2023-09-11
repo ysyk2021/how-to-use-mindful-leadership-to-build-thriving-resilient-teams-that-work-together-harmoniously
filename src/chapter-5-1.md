@@ -1,5 +1,4 @@
-Chapter 5: The Impact of Conflict on Team Performance and Harmony
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the complex dynamics of conflict within teams and its significant impact on team performance and overall harmony. Understanding the nature of conflict is essential for mindful leaders aiming to build thriving, resilient teams that work together harmoniously.
 

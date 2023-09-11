@@ -1,5 +1,4 @@
-Chapter 8: Methods for Measuring Mindful Leadership Success
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various methods and metrics for measuring the success of mindful leadership practices in building thriving, resilient teams that work together harmoniously. Effective measurement is crucial for evaluating the impact of mindful leadership and ensuring ongoing improvement.
 

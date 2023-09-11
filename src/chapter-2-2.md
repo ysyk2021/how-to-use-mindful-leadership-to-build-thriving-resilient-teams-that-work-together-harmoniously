@@ -1,5 +1,4 @@
-Chapter 4: The Impact of Mindful Leadership on Team Success
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound influence that mindful leadership has on the success and overall well-being of teams. Mindful leadership principles, rooted in self-awareness, empathy, presence, and resilience, serve as the catalyst for building thriving, resilient teams that work together harmoniously.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Importance of Effective Communication in Team Settings
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the pivotal role that effective communication plays in team dynamics, highlighting its significance in the context of mindful leadership. Effective communication is the cornerstone of building thriving, resilient teams that can work together harmoniously and achieve their goals.
 

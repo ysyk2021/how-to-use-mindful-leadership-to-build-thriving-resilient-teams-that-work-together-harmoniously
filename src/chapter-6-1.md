@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Promoting Resilience in Teams
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical significance of promoting resilience within teams and how it aligns with the principles of mindful leadership. Building thriving, resilient teams that work together harmoniously is contingent upon fostering individual and collective resilience, and this chapter will elucidate the reasons why resilience is a cornerstone of team success.
 

@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Promoting Resilience with Mindful Leadership
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies and techniques for mindful leadership that are specifically designed to promote resilience within teams. Resilience is a critical component of team success, enabling members to adapt, overcome challenges, and thrive in the face of adversity. By incorporating mindfulness practices into leadership, you can foster a resilient team that works together harmoniously.
 

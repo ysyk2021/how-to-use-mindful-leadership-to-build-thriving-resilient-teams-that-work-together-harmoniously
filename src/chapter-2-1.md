@@ -1,5 +1,4 @@
-Chapter 1: Definition of Mindful Leadership
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this foundational chapter, we will establish a clear understanding of what mindful leadership entails and why it is a crucial component in building thriving, resilient teams that work together harmoniously.
 

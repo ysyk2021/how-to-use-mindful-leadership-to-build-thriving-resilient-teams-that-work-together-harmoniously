@@ -1,5 +1,4 @@
-Chapter 2: Strategies for Developing Mindful Leadership Skills
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies and techniques to develop and enhance mindful leadership skills. These skills are essential for building thriving, resilient teams that work together harmoniously and are rooted in self-awareness, presence, empathy, and resilience.
 

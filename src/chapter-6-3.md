@@ -1,5 +1,4 @@
-Chapter 5: Encouraging Self-Care and Stress Management
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical importance of self-care and stress management in the context of mindful leadership. Building thriving, resilient teams that work together harmoniously requires a foundation of well-being, and mindful leaders play a pivotal role in promoting self-care practices and stress management techniques.
 

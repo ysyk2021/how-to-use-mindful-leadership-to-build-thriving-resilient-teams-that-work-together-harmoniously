@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Using Mindful Leadership to Become a Better Organizational Leader
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into specific strategies and techniques that organizational leaders can implement to harness the power of mindful leadership, ultimately becoming more effective in their roles and creating thriving, resilient teams and organizations.
 

@@ -1,5 +1,4 @@
-Chapter 7: Adjusting Mindful Leadership Programs Based on Feedback
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial process of adjusting mindful leadership programs based on feedback. To build thriving, resilient teams that work together harmoniously, it's essential to continuously refine your leadership approach in response to the input and needs of your team members.
 

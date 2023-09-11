@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Building a Mindful Team Culture
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical role of establishing a mindful team culture in achieving the goal of building thriving, resilient teams that work together harmoniously. A mindful team culture serves as the foundation upon which mindful leadership principles can flourish.
 

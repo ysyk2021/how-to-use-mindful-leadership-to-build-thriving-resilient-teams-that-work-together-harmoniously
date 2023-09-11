@@ -1,5 +1,4 @@
-Chapter 8: Leading with Authenticity and Empathy
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact of leading with authenticity and empathy as integral components of mindful leadership. Authenticity and empathy are not only essential qualities for leaders but also powerful catalysts for building thriving, resilient teams that work together harmoniously.
 
